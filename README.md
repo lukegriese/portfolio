@@ -21,9 +21,9 @@
 
 ### Work Experience
 **Pro Shop Employee - Scenic View Golf Course | 07/24 - 11/24**
-  *Reference - Calvin Coffeen (219) 575-0168*
+  #*Reference - Calvin Coffeen (219) 575-0168*
 
 **Delivery Driver - Domino's Pizza | 05/23 - 06/24**
-  *Reference - Blake Skolnick (347) 576-9379*
+  #*Reference - Blake Skolnick (347) 576-9379*
 
 **Certified Forklift Operator - Broan NuTone | 05/21 - 01/22**
