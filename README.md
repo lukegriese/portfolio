@@ -20,8 +20,8 @@
 - Data Cleansing and Manipulation
 
 ### Work Experience
-**Pro Shop Employee - Scenic View Golf Course | 07/24 - 11/24**
+*Pro Shop Employee - Scenic View Golf Course | 07/24 - 11/24*
 
-**Delivery Driver - Domino's Pizza | 05/23 - 06/24**
+*Delivery Driver - Domino's Pizza | 05/23 - 06/24*
 
-**Certified Forklift Operator - Broan NuTone | 05/21 - 01/22**
+*Certified Forklift Operator - Broan NuTone | 05/21 - 01/22*
